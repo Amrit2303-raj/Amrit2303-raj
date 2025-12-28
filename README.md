@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming 
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me rk9905395638@gmail.com
+- 📫 How to reach me 24bcs011@smvdu.ac.in
 - 😄 Pronouns:he/him
 - ⚡ Fun fact:does crazy things all the time
 
